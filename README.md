@@ -1,5 +1,4 @@
 
-https://unitex.pro/images/joomlart/blog/telegram-bot.png
 
 # بدست اوردن مدل گوشی با عکس
 
